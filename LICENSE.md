@@ -1,0 +1,1 @@
+See http://choosealicense.com/
